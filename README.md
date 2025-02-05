@@ -1,1 +1,1 @@
-Hi, I'm Ravi Kumar Nallagatla. I'm a self-motivated, resilient, and results-driven Java Developer with 2+ years work experience. Looking for a new position as Java Developer. Open to work IMMEDIATELY.
+Hi, I'm Ravi Kumar Nallagatla. I'm a self-motivated, resilient, and results-driven Java Developer with 2+ years work experience.
